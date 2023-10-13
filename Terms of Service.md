@@ -1,6 +1,5 @@
 # Terms of Use
 
-**Last updated:** [Date]
 
 Welcome to Sareda Space! These Terms of Use ("Terms") outline the rules and regulations that govern your use of our Discord server. By accessing or using our server, you agree to be bound by these Terms and our Privacy Policy. Please read them carefully.
 
